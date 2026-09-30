@@ -1,4 +1,4 @@
 #Repositorio
-Na vida nada se perde , nada se cria , tudo se transforma
-Sou Idol Ferrão, chefe da TSI-02 sofro muita pressão por ser chefe e quero renunciar ao meu cargo 
-kkkkkkkkkkkkkkkkkkkkkkkk
+Quer ganhar dinheiro e não sabes
+Não perca o seu tempo, adquira ja ao meu curso de como ganhar dinheiro sem estudar 
+link na biografia 
